@@ -1,6 +1,5 @@
 ---
-title: Welcome to Quartz
+title: Alex Costa
 ---
 
-This is a blank Quartz installation.
-See the [documentation](https://quartz.jzhao.xyz) for how to get started.
+This website hold my writing snippets, daily writing journals, and all those creative things.
