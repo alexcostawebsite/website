@@ -16,14 +16,16 @@ He came into the dining room smelling of alcohol, a bright pink golf polo and tu
 
 Frank was my mentor. I followed him from company to company and was usually his first hire when he made his own shakeups. I owed it to him to see him leave and try to convince him to go out with some level of dignity.
 
-“I think I am going to start a goose farm,” Frank grumbled when he saw me approach. “We have our farmhouse I have been meaning to renovate.”
+  “I think I am going to start a goose farm,” Frank grumbled when he saw me approach. “We have our farmhouse I have been meaning to renovate.”
 
 “Is there a market for geese?” I said with a chuckle while making gestures at the bartender I would have what Frank was having.
 
-“Is there a market?” Frank scoffed, “I have my connections at Columbia that would buy the down and then there is the meat itself.” 
+   “Is there a market?” Frank scoffed, “I have my connections at Columbia that would buy the down and then there is the meat itself.” 
 
-Frank looked at me with narrowed eyes. I was not his direct report anymore, so I didn’t have to worry about pushing on his pride.  
-“And when was the last time you ate a goose? I don’t even know where to buy one.”  
-“Go to any store and ask at the meat counter. They have them frozen in the back.” Frank said, swirling his negroni. The flame in his tone was snuffed out by my logic.
+Frank looked at me with narrowed eyes. I was not his direct report anymore, so I didn’t have to worry about pushing on his pride. 
 
-“I think you would be a great goose farmer,” I said while patting him on the back and giving him a reassuring smile. “I would love to come help.”
+  “And when was the last time you ate a goose? I don’t even know where to buy one.”
+
+  “Go to any store and ask at the meat counter. They have them frozen in the back.” Frank said, swirling his negroni. The flame in his tone was snuffed out by my logic.
+
+  “I think you would be a great goose farmer,” I said while patting him on the back and giving him a reassuring smile. “I would love to come help.”
