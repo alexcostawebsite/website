@@ -28,7 +28,7 @@ This went on for a long time. Many would gather around me daily, pruning dead br
 
 I would be lying if I said I didn’t enjoy it. The people viewed me as one of their own and they cared for me like I cared for them. It was the first time I experienced my version of peace. Something I had not experienced myself but drew from Nadia’s childhood.
 
-==Laremy== was the 82nd leader in the religion that worshiped me. He lived at the top of the largest building in the settlement. It was a few stories, and they built it around one of my largest branches. He was a kind man, listening to everyone’s problems no matter how large or small they were. He would ask me for my advice and actually pause, hoping I could reply to him. I wish I could. I often tried to think of ways I could, but there was little I could do in a single human’s life except make a single fruit bloom every morning above his bed.
+Laremy was the 82nd leader in the religion that worshiped me. He lived at the top of the largest building in the settlement. It was a few stories, and they built it around one of my largest branches. He was a kind man, listening to everyone’s problems no matter how large or small they were. He would ask me for my advice and actually pause, hoping I could reply to him. I wish I could. I often tried to think of ways I could, but there was little I could do in a single human’s life except make a single fruit bloom every morning above his bed.
 
 When he eventually passed away, I finally got to see how he viewed me. I still relive his memories of singing to me often. I wish I could have comforted him and eased the embarrassment he felt talking to me. He was the first person who truly believed I could hear them, and it comforted me.
 
@@ -48,31 +48,31 @@ At first, I produced as much fruit as I physically could with what I had. They s
 
 It took decades to find some kind of balance. Like Nadia, I came to accept the death.
 
-==Esmia== the 276th didn’t have a name, only a title. Her selection at birth destined her for sacrifice at twenty. She grew up knowing this, and people treated her as if she were the living vessel of me. Like every other ==Esmia== before her, she lived a life of luxury before it was her time to ascend.
+Esmia the 276th didn’t have a name, only a title. Her selection at birth destined her for sacrifice at twenty. She grew up knowing this, and people treated her as if she were the living vessel of me. Like every other Esmia before her, she lived a life of luxury before it was her time to ascend.
 
-She reminded me of ==Laremy== and Nadia. She would sing similar hymns to me and climb on my branches while telling me about her life. What separated her from ==Laremy== was the fear she held onto of knowing when she was going to die. She loved me in a way, but hated me for believing I had wanted her and others dead. She would ask under her breath why I needed the lives, hoping no one heard her but me. The time she spent in my branches usually finished with her gentle sobbing.
+She reminded me of Laremy and Nadia. She would sing similar hymns to me and climb on my branches while telling me about her life. What separated her from Laremy was the fear she held onto of knowing when she was going to die. She loved me in a way, but hated me for believing I had wanted her and others dead. She would ask under her breath why I needed the lives, hoping no one heard her but me. The time she spent in my branches usually finished with her gentle sobbing.
 
-On the day they gathered her at my trunk for ==sanguination==, I wept. The accumulating anger I felt vibrated through me. My branches stopped flowing water and my fruit ruptured; the petals of my flowers and my leaves blanketed the town. This caused me to sleep in the middle of summer for two days, which caused the town and the surrounding areas to panic. Priests wrote this as a sign similar to the time I placed the sun in the sky and ==Esmia== the 276th got to be known as ==Esmia== the Last.
+On the day they gathered her at my trunk for sanguination, I wept. The accumulating anger I felt vibrated through me. My branches stopped flowing water and my fruit ruptured; the petals of my flowers and my leaves blanketed the town. This caused me to sleep in the middle of summer for two days, which caused the town and the surrounding areas to panic. Priests wrote this as a sign similar to the time I placed the sun in the sky and Esmia the 276th got to be known as Esmia the Last.
 
 The priests finally correctly read my anger through their two-day fast and the months-long cleanup of my outburst.
 
-I got to have the joy of watching ==Esmia== climb my branches with her children, play at my base with her grandchildren, and show me to her great-grandchildren. When she passed, they built a stone structure next to me and cared for it as they cared for me. I eventually produce a small branch that hung over her tomb that was always in bloom.
+I got to have the joy of watching Esmia climb my branches with her children, play at my base with her grandchildren, and show me to her great-grandchildren. When she passed, they built a stone structure next to me and cared for it as they cared for me. I eventually produce a small branch that hung over her tomb that was always in bloom.
 
-From there, life progressed. The world slowly balanced itself. The settlement became a city surrounding an extensive park that people came to on pilgrimages. People paid sizable sums to be buried around me. Rulers and the wealthy from around the world saw it as a ticket to immortality. My fruit became less needed for life, and the church used them more as holy items. They bottled my water for ceremonies and sent it to places with no clean water. People all over the world built buildings like ==Laremy’s==, and they grew trees from my fruit in every one. It was the second time I felt peace. By this time my branches were so massive that the whole river diverted through me, creating an intricate network of waterfalls throughout my canopy.
+From there, life progressed. The world slowly balanced itself. The settlement became a city surrounding an extensive park that people came to on pilgrimages. People paid sizable sums to be buried around me. Rulers and the wealthy from around the world saw it as a ticket to immortality. My fruit became less needed for life, and the church used them more as holy items. They bottled my water for ceremonies and sent it to places with no clean water. People all over the world built buildings like Laremy’s, and they grew trees from my fruit in every one. It was the second time I felt peace. By this time my branches were so massive that the whole river diverted through me, creating an intricate network of waterfalls throughout my canopy.
 
-Slowly people stopped caring for me as a god and more as a landmark. It had been generations since ==Esmia== and her tomb made more of a cave in my trunk. Humanity worried less about the world killing them and more about the awkward things they told their neighbors.
+Slowly people stopped caring for me as a god and more as a landmark. It had been generations since Esmia and her tomb made more of a cave in my trunk. Humanity worried less about the world killing them and more about the awkward things they told their neighbors.
 
 Eventually, some got annoyed at the amount of land I took up. Buildings started approaching my height. They pruned my limbs to make space for more buildings, and they confined me to my hill.
 
-==Kalice== was the last person to visit me. I felt it in the air; I could sense the fear in the millions of people around me. I wanted to learn from my mistakes last time, and I focused on storing resources to maintain being awake as long as possible.
+Kalice was the last person to visit me. I felt it in the air; I could sense the fear in the millions of people around me. I wanted to learn from my mistakes last time, and I focused on storing resources to maintain being awake as long as possible.
 
-“You have survived so much.” I heard her whisper when she went into ==Esmia’s== tomb. “How did you endure?” she asked as she took pieces of me and studied them with tools I didn’t understand that made sounds I did not like.
+“You have survived so much.” I heard her whisper when she went into Esmia’s tomb. “How did you endure?” she asked as she took pieces of me and studied them with tools I didn’t understand that made sounds I did not like.
 
-==Kalice== visited me every day for a year. She told me about how humanity was leaving. The pain of convincing her elderly father to go with her. The issues she faced with the people she went on dates with. After a week, I started leaving a fruit by her tools. And by the third day, she was excited.
+Kalice visited me every day for a year. She told me about how humanity was leaving. The pain of convincing her elderly father to go with her. The issues she faced with the people she went on dates with. After a week, I started leaving a fruit by her tools. And by the third day, she was excited.
 
 “Do you understand me?” She asked. It had been so long since anyone had actually talked to me. I tried to grow a fruit in the same location I had every morning for her. The process had already started, but it would be hours before she noticed. It had been so long, and I still had not known how to control myself in the short time a human cared.
 
-==Kalice’s== face went from hope to disappointment.
+Kalice’s face went from hope to disappointment.
 
 She continued to talk to me as she worked, but I could tell from her tone it was not the same. I continued to produce fruit for her; I gathered the metals and minerals from the river and played with the blending of them to make my fruit change colors. Over time, I changed the colors of her fruit in patterns every day. She noticed after a few weeks.
 
@@ -80,4 +80,4 @@ She continued to talk to me as she worked, but I could tell from her tone it was
 
 The next day, when the fruit was green, she cried.
 
-#shortform #writingcontest #prompt 
+#shortform #writingcontest #prompt #reedsy
