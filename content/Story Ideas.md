@@ -1,0 +1,1 @@
+- A lovable loser discovers the regulars at a bar he frequents are a covet of magic users that want to recruit him.

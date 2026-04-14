@@ -2,5 +2,33 @@
 title: Alex Costa
 draft: 
 tags:
+  - journal
+  - improvement
 ---
+- ## Rewrite a paragraph from an author you like in your own words
+	- ### Original Paragraph
+		- 
+	- ### My Version
+		- 
+- ## Generate one plot 
+	- 
+- ## Write one opening line
+	- 
+- ## Read a one star book review
+	- ### Review:
+		- 
+	- ### Takeaway:
+		- 
+- ## Read like a writer
+	- ### Takeaways from what I read last night:
+		- 
+- ## Write for twenty minutes a day
+	- Did I do this?: 
+	- Actual time:
+	- Word count:
 
+
+
+
+
+This daily journal is based on the video [*How to get 1% better at writing every day*](https://youtu.be/Ns1lj19NG5Y?si=szYAIBxfBbvXyjVV) by Bookfox
