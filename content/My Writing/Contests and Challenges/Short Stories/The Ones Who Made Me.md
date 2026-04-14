@@ -80,4 +80,4 @@ She continued to talk to me as she worked, but I could tell from her tone it was
 
 The next day, when the fruit was green, she cried.
 
-#shortform #writingcontest #prompt #reedsy
+#shortform #writingcontest #prompt #reedsy #scifi #somber
