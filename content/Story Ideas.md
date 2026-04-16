@@ -1,1 +1,1 @@
-- A lovable loser discovers the regulars at a bar he frequents are a covet of magic users that want to recruit him.
+- A lovable loser discovers the regulars at a dive bar he frequents are a covet of witches and wizards and he wants to join them
