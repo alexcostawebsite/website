@@ -3,7 +3,20 @@ title: Alex Costa
 draft: 
 tags:
 ---
+This is a website I use to store all my short stories and track my progress as a writer.
 
-This website is my writing playground and archive. So many times have I written things that then just disappeared that I am hoping to add here and categorize them so I never lose them. 
 
-Because if I write something bigger maybe I can just plagiarize myself.
+My Favorite:
+1 - [[Mannerfold v. Horris Property Management]]
+2 - [[Trunk Shovel]]
+3 - [[Pressed Flowers]]
+
+Short Stories by order
+
+1 - [[The Ones Who Made Me]]
+2 - [[Valhalla Has Soft-Serve]]
+3 - [[Trunk Shovel]]
+4 - [[Holding Power]]
+5 - [[Papi Gets Paid]]
+6 - [[Mannerfold v. Horris Property Management]]
+7 - [[Pressed Flowers]]
