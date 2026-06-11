@@ -6,13 +6,13 @@ tags:
   - twisted
   - shortstory
 ---
-The following was my 5th short story with the following recs
-100 Word Count
+```
+Word Count: 100 max
 Theme: A Regular Customer
 Trope: Something Amusing
 Word: Momentum
-
 Place: Unranked - Lower 20%
+```
 
 “Papi?” Elsa, the regular, said with a smirk.  
 “No, ma'am, they call me Puppy.”  

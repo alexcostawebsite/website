@@ -6,11 +6,12 @@ tags:
   - twisted
   - shortstory
 ---
-The following story was my 4th short story and for Twisted Tournament with these recs:
+```
 WC: 50
 Theme: Vanity
 Prompt: A bone die
 Placed: Unranked - lower 40%
+```
 
 King Lars polished the bone die, staring at his aged reflection in the statue's pond.   
 “One to six,” the statue said. “Each pip, a soul from your line. Bring them, and gain more time.”  

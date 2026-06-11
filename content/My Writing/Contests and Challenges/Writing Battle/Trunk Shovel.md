@@ -6,11 +6,13 @@ tags:
   - writingcontest
   - shortstory
 ---
-The following is the 3rd short story I have written.
-250 word count limit
+```
+Word Count: 250 Max
 Genre: Rant
 Character: Dealer
 Object: Shovel
+Placed: TBD
+```
 
 ![[77f6bb12-f044-4fe6-b976-b4502657a4a5.webp]]
 

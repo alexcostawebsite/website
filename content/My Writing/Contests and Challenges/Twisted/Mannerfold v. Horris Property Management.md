@@ -6,13 +6,14 @@ tags:
   - twisted
   - shortstory
 ---
-The following was my 6th short story with the following recs
-1000 Word Count
+```
+Word Count: 1000 Max
 Theme: Haunted House
 Trope: Comedy
 Prompt: Character: Must be told through letters or messages
+Placed: 3rd in group
+```
 
-Placed: 3rd
 
 Dear Horris Property Management,
 

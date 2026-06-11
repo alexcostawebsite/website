@@ -6,13 +6,14 @@ tags:
   - writingbattle
   - shortstory
 ---
-The following story was my second short story. I had the following prompts
 
+```
+Word Count: 2500 Max
 Genre: Urban Fantasy
 Character: Grief Counselor
 Setting: Secret Room
-
-I placed 14th in my house out of 37
+Ranked: 14/37 in house
+```
 
 Freyr watched Jake hold the urn of his father while sitting shotgun in a golf cart decorated to look like a viking long boat. The young man looked like a giant penguin abducted by senior tourists as the funeral procession snaked its way to the front of the Golden Corral, where Freyr and Billy protected their parking spots.
 
