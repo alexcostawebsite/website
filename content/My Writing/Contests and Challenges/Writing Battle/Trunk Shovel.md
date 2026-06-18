@@ -11,7 +11,7 @@ Word Count: 250 Max
 Genre: Rant
 Character: Dealer
 Object: Shovel
-Placed: TBD
+Placed: 6 wins - 4 losses (Honorable Mention)
 ```
 
 ![[77f6bb12-f044-4fe6-b976-b4502657a4a5.webp]]
