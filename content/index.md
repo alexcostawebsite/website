@@ -19,3 +19,4 @@ Short stories by order written:
 5. [[Papi Gets Paid]]
 6. [[Mannerfold v. Horris Property Management]]
 7. [[Pressed Flowers]]
+8. [[The Hour Hand]]
