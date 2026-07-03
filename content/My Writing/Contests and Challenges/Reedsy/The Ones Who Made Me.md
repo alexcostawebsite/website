@@ -1,6 +1,17 @@
-# The Ones Who Made Me
-
-*The following story was for a Reedsy contest you can find [here](https://reedsy.com/creative-writing-prompts/dystopian/write-a-story-from-the-pov-of-a-monster-infected-c/)*
+---
+title: The Ones Who Made Me
+draft: 
+tags:
+  - writingcontest
+  - shortstory
+  - reedsy
+---
+```
+WC: 1000 - 3000
+Prompt: Write a story from the POV of a monster, infected creature, or lone traveler
+Placed: Unknown. Did not win
+Written On: Between April 3rd 2026 and April 10th 2026
+```
 
 My first memory is of a three-year-old girl named Nadia looking at the flowers growing from me. She desired to be taller so she could pick them. Nadia wanted them in her hair; she wanted to press them in a book; she wanted to bring one to her Grandma, who would help her get them against her father’s will.
 
@@ -79,5 +90,3 @@ She continued to talk to me as she worked, but I could tell from her tone it was
 “Tomorrow is a red day, isn’t it?” She said while looking up into the dim light of my canopy. “If you understand me, make the fruit green.”
 
 The next day, when the fruit was green, she cried.
-
-#shortform #writingcontest #prompt #reedsy #scifi #somber

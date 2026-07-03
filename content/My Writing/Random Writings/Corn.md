@@ -9,7 +9,8 @@ tags:
 ```
 Word Count: 300 Max
 Genre: Whimsy
-Not part of a contest
+Written on: 
+Not part of a contest but was inspired by jokes with The Eleveneers for Whimsy Fiction writing comp
 ```
 
 
