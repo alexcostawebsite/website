@@ -12,7 +12,7 @@ GROUP: 29
 GENRE: Romance
 ACTION: Freezing
 OBJECT: A teardrop
-Place: TBD
+Place: 10th out of 40
 ```
 
  I first saw Natalie when my parents checked me into a hospice for young adults. Her long, mousy hair covered her face, but I still saw a tear rush down her cheek. In my first letter home, I called the place a misery garden, but there was comfort in being around people my age, all of us riding the same ferry to the end.
