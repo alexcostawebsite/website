@@ -17,3 +17,5 @@ Short stories by order written with dates the rough estimate when written:
 8. [[The Hour Hand]] - June 22nd to June 26 2026
 9. [[Corn]] - June 31st 2026
 10. [[The Rift at Derry Street Bar and Grill]] - July 1st 2026
+11. [[Act Of Disobedience]] - July 18th 2026
+12. [[Slippery When Wet]] - July 19th 2026
