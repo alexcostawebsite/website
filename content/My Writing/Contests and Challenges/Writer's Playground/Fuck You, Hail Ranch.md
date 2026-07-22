@@ -16,9 +16,11 @@ Place: TBD
 ```
 
 
-**Dictated to Abigail Cruz
-For the autobiography of Joe-Kyle Fletcher
-Working title: Fuck You, Hail Ranch**
+**Dictated to Abigail Cruz**
+
+**For the autobiography of Joe-Kyle Fletcher**
+
+**Working title: Fuck You, Hail Ranch**
 
 Winning the lottery means everyone you ever loved, fucked, or talked to all of a sudden is your best friend, which is fine and all. I like to have a good time, and I like being around people that like to have a good time. I get that they started turning up out of whatever little shit hole they were in since I would have done the same.
 
