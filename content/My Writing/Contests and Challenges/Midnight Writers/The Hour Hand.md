@@ -11,7 +11,7 @@ Contest: Midnight Writers
 Word Count: 500 - 1200
 Genre: Dark Fantasy
 Word: Bones
-Ranked: TBD
+Ranked: Did not place
 ```
 
 
