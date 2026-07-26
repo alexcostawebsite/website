@@ -7,6 +7,7 @@ tags:
   - shortstory
 ---
 ```
+Contest: NYC Midnight
 Word Count: 500 Max
 GROUP: 19
 GENRE: Comedy

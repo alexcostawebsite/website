@@ -7,6 +7,7 @@ tags:
   - shortstory
 ---
 ```
+Contest: Twisted Tournament
 WC: 50
 Theme: Vanity
 Prompt: A bone die

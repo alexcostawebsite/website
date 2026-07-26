@@ -8,6 +8,7 @@ tags:
 ---
 
 ```
+Contest: Whimsy Fiction
 Word Count: 300 Max
 Genre: Whimsy
 Written on: July 1st 2026

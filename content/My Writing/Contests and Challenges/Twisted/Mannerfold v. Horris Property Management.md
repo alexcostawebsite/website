@@ -7,6 +7,7 @@ tags:
   - shortstory
 ---
 ```
+Contest: Twisted Tournament
 Word Count: 1000 Max
 Theme: Haunted House
 Trope: Comedy

@@ -8,6 +8,7 @@ tags:
   - comedy
 ---
 ```
+Contest: Writer's Playground
 Word Count: 3100 max
 Character: Lottery Winner
 Location: Country Club

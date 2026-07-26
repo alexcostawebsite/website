@@ -7,6 +7,7 @@ tags:
   - shortstory
 ---
 ```
+Competition: NYC Midnight
 Word Count: 500 Max
 GROUP: 29
 GENRE: Romance

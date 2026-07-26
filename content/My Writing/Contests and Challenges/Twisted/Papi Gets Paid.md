@@ -7,6 +7,7 @@ tags:
   - shortstory
 ---
 ```
+Contest: Twisted Tournament
 Word Count: 100 max
 Theme: A Regular Customer
 Trope: Something Amusing

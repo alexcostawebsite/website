@@ -8,6 +8,7 @@ tags:
 ---
 
 ```
+Contest: Writing Battle
 Word Count: 2500 Max
 Genre: Urban Fantasy
 Character: Grief Counselor

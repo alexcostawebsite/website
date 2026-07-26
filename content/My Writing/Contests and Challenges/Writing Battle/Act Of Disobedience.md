@@ -7,6 +7,7 @@ tags:
   - shortstory
 ---
 ```
+Contest: Writing Battle
 Word Count: 100 Max
 Genre: Collapsing Star
 Character: Disciplinarian

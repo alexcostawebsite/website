@@ -7,6 +7,7 @@ tags:
   - reedsy
 ---
 ```
+Contest: Reedsy Weekly
 WC: 1000 - 3000
 Prompt: Write a story from the POV of a monster, infected creature, or lone traveler
 Placed: Unknown. Did not win

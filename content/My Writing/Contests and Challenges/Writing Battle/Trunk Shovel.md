@@ -7,6 +7,7 @@ tags:
   - shortstory
 ---
 ```
+Contest: Writing Battle
 Word Count: 250 Max
 Genre: Rant
 Character: Dealer
