@@ -14,6 +14,7 @@ Genre: Whimsy
 Written on: July 1st 2026
 Prompt: Transformation Troubles
 Unique item: Tablet (device)
+Place: Did not place
 ```
 
 
