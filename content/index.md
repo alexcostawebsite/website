@@ -21,3 +21,4 @@ Short stories by order written with dates the rough estimate when written:
 12. [[Slippery When Wet]] - July 19th 2026
 13. [[Fuck You, Hail Ranch]] - July 20th - 21st 2026
 14. [[A Field]] - July 26th 2026
+15. [[Wherever You Want to Go]] - August 6th 2026
