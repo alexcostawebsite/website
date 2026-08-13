@@ -12,7 +12,7 @@ Word Count: 100 Max
 Genre: Collapsing Star
 Character: Disciplinarian
 Object: Ticket Stub
-Placed: TBD
+Placed: 1st in house. Going to Final Showdown
 ```
 
 
