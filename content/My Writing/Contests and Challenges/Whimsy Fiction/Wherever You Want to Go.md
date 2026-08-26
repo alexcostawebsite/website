@@ -14,7 +14,7 @@ Genre: Whimsy
 Written on: August 6th 2026
 Prompt: Tagalongs and Stowaways
 Unique item: Fuse Box
-Place: TBD
+Place: Did Not Place
 ```
 
 
